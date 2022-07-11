@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sayh0
-- 👀 I’m interested in gae-bal-jja
+- 👀 I’m interested in gae-bal-jja doe gi
 
 
 <!---
