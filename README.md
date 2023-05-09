@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sayh0
-- 👀 I’m interested in gae-bal-jja doe-gi
-- 📕 https://michaelyoon0948.tistory.com
+- 👀 I’m interested in gae-bal-gosu
+
 
 <!---
 Sayh0/Sayh0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
